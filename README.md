@@ -1,3 +1,1 @@
 ## Deokdory
-
-ALCON Engineer
